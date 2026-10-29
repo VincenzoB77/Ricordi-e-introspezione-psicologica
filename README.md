@@ -59,7 +59,7 @@ il lutto dell'amore mancato deve essere elaborato, non riparato.
 ________________________________________
 Analisi fenomenologica
 
-Dal punto di vista fenomenologico, ciò che descrive riguarda il rapporto tra passato e presente.
+Dal punto di vista fenomenologico, ciò che il testo descrive riguarda il rapporto tra passato e presente.
 
 La persona vive il presente affettivo attraverso una temporalità deformata.
 
