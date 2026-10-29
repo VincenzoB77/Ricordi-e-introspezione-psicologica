@@ -11,7 +11,7 @@ La maturità affettiva inizia quando si accetta una verità dolorosa: nessun amo
 ________________________________________
 Analisi psicologica
 
-Dal punto di vista psicologico, il tuo testo descrive il fenomeno della deprivazione affettiva infantile e della sua ripetizione nelle relazioni adulte.
+Dal punto di vista psicologico, il  testo descrive il fenomeno della deprivazione affettiva infantile e della sua ripetizione nelle relazioni adulte.
 
 L'individuo non cerca soltanto un partner, un amico o una persona amata.
 
