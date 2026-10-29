@@ -187,7 +187,7 @@ Copyright Ultra Restricted.
 
 Nessuna parte di questa opera può essere riprodotta, distribuita, tradotta, archiviata, pubblicata, trasmessa, elaborata tramite sistemi di intelligenza artificiale, utilizzata per l'addestramento di modelli linguistici, o impiegata in qualsiasi forma o con qualsiasi mezzo, elettronico o meccanico, senza il preventivo consenso scritto dell'autore.
 
-Le riflessioni contenute in questo documento rappresentano considerazioni personali, sinossi teoriche e intuizioni cliniche maturate nel corso della mia analisi personale e della mia pratica professionale come psicoanalista. Non intendono costituire un trattato sistematico, ma piuttosto una raccolta di appunti, osservazioni e meditazioni psicologiche, psicoanalitiche e fenomenologiche sulla sofferenza umana, l'amore, il trauma e la ricerca di significato.
+Le riflessioni contenute in questo documento rappresentano considerazioni personali, sinossi teoriche e intuizioni cliniche maturate nel corso della mia analisi personale e della mia pratica professionale come psicoanalista, in particolare durante gli anni del mio Private Doctoral‑Level Clinical Training Program a Saratoga Springs (New York State, US) tra il 2021 e il 2025. Lungi dal voler costituire un trattato sistematico, questa raccolta si propone come un insieme di appunti, osservazioni e meditazioni psicologiche, psicoanalitiche e fenomenologiche sulla sofferenza umana, l'amore, il trauma e la ricerca di significato.
 
 
 
