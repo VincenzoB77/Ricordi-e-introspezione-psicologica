@@ -59,7 +59,7 @@ il lutto dell'amore mancato deve essere elaborato, non riparato.
 ________________________________________
 Analisi fenomenologica
 
-Dal punto di vista fenomenologico, ciò che descrivi riguarda il rapporto tra passato e presente.
+Dal punto di vista fenomenologico, ciò che descrive riguarda il rapporto tra passato e presente.
 
 La persona vive il presente affettivo attraverso una temporalità deformata.
 
@@ -129,13 +129,14 @@ Nella fenomenologia dell'amore, l'incontro autentico richiede che due intenziona
 
 ●	La distorsione del presente: L'orizzonte del presente è completamente saturato dal passato. L'adulto guarda il partner con occhi che hanno accumulato decenni di attesa, trasformando il presente in un luogo di spettri. Non c'è una percezione pulita dell'altro; c'è solo la percezione della propria mancanza riflessa sull'altro.
 
-●	L'attesa di una risposta anacronistica: Come suggerisce il tuo testo originario, la sofferenza non deriva dal fatto che il partner non ami, ma dal fatto che il soggetto sta aspettando la risposta a una domanda formulata trent'anni prima. Se il partner dice "ti amo" oggi, quella frase risuona nello spazio vuoto dell'adulto, ma non raggiunge il bambino sperduto che grida nel passato. I due livelli rimangono tragicamente confusi.
+●	L'attesa di una risposta anacronistica: La sofferenza non deriva dal fatto che il partner non ami, ma dal fatto che il soggetto sta aspettando la risposta a una domanda formulata anni prima. Se il partner dice "ti amo" oggi, quella frase risuona nello spazio vuoto dell'adulto, ma non raggiunge il bambino sperduto che grida nel passato. I due livelli rimangono tragicamente confusi.
 
 ●	La conversione intenzionale: La maturità fenomenologica si compie quando l'individuo opera una epoché, una sospensione del giudizio sul presente condizionato dal passato. Consiste nel tracciare una linea di demarcazione esistenziale: «Questo amore che ricevo ora appartiene al mio presente e all'adulto che sono; il vuoto che sento appartiene alla mia storia e non può essere colmato da chi mi sta di fronte». Solo quando l'altro viene liberato dal peso di dover essere il "salvatore", l'orizzonte si apre e il legame si trasforma da un tentativo di riscrittura del passato a un autentico, libero e svelato incontro tra due esistenze.
 
 L'Anacronismo Affettivo: Il Trauma Infantile e l'Illusione del Risarcimento nelle Relazioni Adulte
 
 Introduzione: Il Compito Impossibile dell'Amore Adulto
+
 Tutto l'amore che viene negato durante l'infanzia deve, prima o poi, essere oggetto di una rinuncia radicale nell'età adulta. Si tratta di una verità dolorosa ma fondativa: nessuno potrà mai restituire ciò che è stato sottratto all'origine, neppure coloro che ameranno l'adulto con assoluta dedizione. Essi, infatti, si relazionano alla persona presente, ma rimangono impotenti di fronte al bambino che l'adulto continua inconsciamente a cercare di salvare attraverso di loro. Finché questa rinuncia non viene deliberatamente attraversata, ogni relazione affettiva rischia di essere gravata da un compito impossibile: riparare retroattivamente una ferita che appartiene a un tempo ormai mitico e irraggiungibile. In queste condizioni, l'amore si corrompe in una forma di mendicanza affettiva, un linguaggio interrotto di un bambino smarrito che continua a domandare nel presente ciò che non ha ricevuto nel passato. La maturità inizia precisamente in questo punto di rottura: quando l'altro smette di essere investito del ruolo di salvatore e può finalmente essere incontrato come persona.
 
 Per comprendere la complessità di questo blocco evolutivo e della sua successiva risoluzione, è necessario indagare il fenomeno attraverso tre lenti d'ingrandimento complementari: la clinica dello sviluppo psicologico, la dinamica profonda della psicoanalisi e la filosofia del tempo fenomenologico.
@@ -160,7 +161,7 @@ Il partner subisce un'eclissi della propria alterità, venendo investito come "o
 
 ●	La ricerca del fallimento controllato: Si selezionano spesso partner inconsciamente simili alle figure traumatiche (indisponibili o abusanti) nel tentativo disperato di "riscrivere il finale" e ottenere la redenzione da chi incarna il rifiuto.
 
-●	L'amore come debit (Transfert): Il partner viene chiamato a rispondere e a pagare per un debito emotivo che non ha mai contratto.
+●	L'amore come debito (Transfert): Il partner viene chiamato a rispondere e a pagare per un debito emotivo che non ha mai contratto.
 
 ●	Il rifiuto del lutto originario: La guarigione non avviene tramite la riparazione, ma attraverso l'elaborazione del lutto. L'individuo deve compiere il passo doloroso di piangere l'infanzia ideale che non ha avuto. Finché esige che il partner sani il passato, il soggetto rifiuta di accettare la propria impotenza di fronte alla storia.
 ________________________________________
